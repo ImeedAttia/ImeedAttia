@@ -6,7 +6,7 @@
 
      Email imedattia1032@gmail.com,
      
-     linkedin : https://www.linkedin.com/in/attia-imed-1977941b6/ ,
+     Linkedin : https://www.linkedin.com/in/attia-imed-1977941b6/ ,
      
      Facebook : https://www.facebook.com/imeed.attiaa
      
