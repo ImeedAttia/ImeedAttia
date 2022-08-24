@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Web developing
 - 📫 How to reach me : 
 
-     Email attia.imeed@gmail.com,
+     Email    : attia.imeed@gmail.com,
      
      Linkedin : https://www.linkedin.com/in/attia-imed-1977941b6/ ,
      
