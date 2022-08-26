@@ -6,7 +6,7 @@
 
      Email    : attia.imeed@gmail.com,
      
-     Linkedin : https://www.linkedin.com/in/attia-imed-1977941b6/ ,
+     Linkedin : https://www.linkedin.com/in/attia-imeed/ ,
      
      Facebook : https://www.facebook.com/imeed.attiaa
      
