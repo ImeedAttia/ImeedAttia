@@ -8,7 +8,7 @@
      
      Linkedin : https://www.linkedin.com/in/attia-imeed/ ,
      
-     Facebook : https://www.facebook.com/imeed.attiaa
+     Facebook : https://www.facebook.com/attia.imeed/
      
      Web Site : https://sites.google.com/view/attia-imed-portfolio/
      
