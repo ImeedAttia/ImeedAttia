@@ -1,7 +1,4 @@
 - 👋 Hi, I’m @ImeedAttia
-- 👀 I’m interested in Coding
-- 🌱 I’m currently learning Vue.js,SpringBoot
-- 💞️ I’m looking to collaborate on Web developing
 - 📫 How to reach me : 
 
      Email    : attia.imeed@gmail.com,
